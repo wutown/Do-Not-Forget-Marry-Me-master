@@ -11,9 +11,9 @@
 
 洪烈 6/9-6/20 or 21 not available
 
-1. 愛很簡單
-2. 牽阮的手
-3. kiss me 
-4. 月亮代表我的心 
+1. 牽阮的手
+2. 月亮代表我的心
+3. 愛很簡單 
+4. kiss me 
 5. yellow
 6. Marry me
